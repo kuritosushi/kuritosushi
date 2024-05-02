@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @kuritosushi
+- 👀 I’m interested in Ciber Security and Qb/Fivem Scripts
+- 🌱 I’m currently learning IoT
+- 💞️ I’m looking to collaborate on Fivem Servers
+- 📫 How to reach me: Discord: kuroseshi
